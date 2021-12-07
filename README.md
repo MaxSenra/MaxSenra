@@ -1,0 +1,5 @@
+- 👋 Hola, em dic @MaxSenra
+- 👀 Estic interessat en les noves tecnologies, en concret en la informàtica, més concret encara en la programació.
+- 🌱 Actualment estic estudiant la carrera d'enginyeria informàtica a la UOC (Universitat Oberta de Catlunya).
+- A dia d'avui i degut a que acavo d'acabar el batxilerat, no  tinc experiència laboral.
+- 📫 Sóc de Barcelnoa ciutat, Catalunya.
